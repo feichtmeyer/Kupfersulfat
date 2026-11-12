@@ -1,0 +1,2 @@
+# Kupfersulfat
+Heilung und Verschränkung
